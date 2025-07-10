@@ -10,7 +10,7 @@
 
 这些平台专注于久久久国产精品国产精品资源，提供丰富的国产一级及欧美一级免费淫片，更新及时，分类详细。每个视频页面介绍影片时长、演员及清晰度，支持高清流畅播放，并根据网络状况自动调整画质，确保观看体验顺畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/toi20250710/toi3 ）</span>
 
 
 
